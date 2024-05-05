@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with best companies
 - 📫 How to reach me:Linkldn
 - 😄 Pronouns: She
-- ⚡ Fun fact:lazy but Crative
+- ⚡ Fun fact:lazy but Creative
 
 <!---
 CreativeAnamika/CreativeAnamika is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
